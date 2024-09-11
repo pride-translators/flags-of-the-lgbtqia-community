@@ -1,3 +1,8 @@
+---
+title: "LGBTIQ 공동체 깃발"
+---
+
+
 # LGBTIQ 공동체 깃발
 > 원문을 읽고 싶으신가요? [여기](https://outrightinternational.org/insights/flags-lgbtiq-community)를 확인해보세요.
 
